@@ -1,4 +1,4 @@
-![17458102326962339346893184862057](https://github.com/user-attachments/assets/2cd03d9b-7740-4587-b7dd-5ae4989499bb)
+9![17458102326962339346893184862057](https://github.com/user-attachments/assets/2cd03d9b-7740-4587-b7dd-5ae4989499bb)
 "Ma~kun, I love you. Let's get married."
 ![17458103253236662331059111870150](https://github.com/user-attachments/assets/dafabbd7-3978-42a2-92d2-5d153c79a2d2)![17458147212313782671272218397952](https://github.com/user-attachments/assets/334b2e9d-6cdf-40d7-a1eb-257e04940e31)
 
@@ -15,4 +15,5 @@
 ![ddl](https://static.wikia.nocookie.net/enstars-ships/images/9/99/%28Sunlight%27s_Childhood_Friend%29_Mao_Isara_CG.png/revision/latest/scale-to-width-down/250?cb=20200518152128) ![#£#](https://static.wikia.nocookie.net/enstars-ships/images/0/01/Screen_Shot_2021-01-23_at_1.21.53_AM.png/revision/latest/scale-to-width-down/250?cb=20210123062237)
 
 ![£#&](https://static.wikia.nocookie.net/enstars-ships/images/4/4c/RitsuMao_Movie_%281%29.png/revision/latest/scale-to-width-down/250?cb=20230105083716)
-![=÷](https://static.wikia.nocookie.net/enstars-ships/images/a/ad/Screenshot_%28953%29.png/revision/latest/scale-to-width-down/250?cb=20230105083223)![÷<÷](https://pin.it/178q77s4j)
+![=÷](https://static.wikia.nocookie.net/enstars-ships/images/a/ad/Screenshot_%28953%29.png/revision/latest/scale-to-width-down/250?cb=20230105083223)
+
