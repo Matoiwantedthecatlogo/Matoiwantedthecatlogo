@@ -17,7 +17,7 @@
 ![£#&](https://static.wikia.nocookie.net/enstars-ships/images/4/4c/RitsuMao_Movie_%281%29.png/revision/latest/scale-to-width-down/250?cb=20230105083716)
 ![=÷](https://static.wikia.nocookie.net/enstars-ships/images/a/ad/Screenshot_%28953%29.png/revision/latest/scale-to-width-down/250?cb=20230105083223)
 
-![1745816903049729855686064112555](https://github.com/user-attachments/assets/0d14a8c8-c160-49c2-8e65-2afb4a5b07be)![17458169439341422276679230521537](https://github.com/user-attachments/assets/0439ed29-5ff1-493f-a4c8-241155cbefb6)
+![1745816903049729855686064112555](https://github.com/user-attachments/assets/0d14a8c8-c160-49c2-8e65-2afb4a5b07be)
 
 ![17458174371034485806843990173094](https://github.com/user-attachments/assets/8d63a7d8-707a-4816-927d-623b738e827d)
 ![17458174940895388862727432111630](https://github.com/user-attachments/assets/6746e731-fee1-4d24-a3f2-6aea67b1af1c)
