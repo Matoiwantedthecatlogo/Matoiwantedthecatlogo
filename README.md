@@ -2,7 +2,7 @@
 
 "Ask me again when it becomes legal in this country."
 
-
+![my boys](https://static.wikia.nocookie.net/shipping/images/8/84/RitsuMao-_Ritsu_hugging_Mao.gif/revision/latest?cb=20240316213753)
 <!--
 **Matoiwantedthecatlogo/Matoiwantedthecatlogo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
