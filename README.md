@@ -1,6 +1,6 @@
 "MA~KUN, I LOVE YOU. LET'S GET MARRIED." "ASK ME AGAIN WHEN IT BECOMES LEGAL IN THIS COUNTRY."
 
-![MYBOYYS] (https://enstars-ships.fandom.com/wiki/File:Screen_Shot_2021-01-23_at_1.21.53_AM.png)
+![MYBOYS](https://enstars-ships.fandom.com/wiki/File:Screen_Shot_2021-01-23_at_1.21.53_AM.png)
 <!--
 **Matoiwantedthecatlogo/Matoiwantedthecatlogo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
