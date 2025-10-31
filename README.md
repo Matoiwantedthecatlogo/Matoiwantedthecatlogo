@@ -30,5 +30,6 @@
 ![17458204159502362626145092835576](https://github.com/user-attachments/assets/560114e8-45bd-4dab-968b-aa9ef294349f) 
 ![](https://files.catbox.moe/j2nj7f.gif)
 
+![=](https://files.catbox.moe/aokhvc.png)
 
 
