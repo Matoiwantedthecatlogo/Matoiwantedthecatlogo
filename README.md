@@ -30,6 +30,5 @@
 ![17458204159502362626145092835576](https://github.com/user-attachments/assets/560114e8-45bd-4dab-968b-aa9ef294349f) 
 ![](https://files.catbox.moe/j2nj7f.gif)
 
-![=](https://files.catbox.moe/aokhvc.png)
-
-
+![=](https://files.catbox.moe/aokhvc.png) ![](https://files.catbox.moe/qa3bun.gif) ![](https://files.catbox.moe/qjvinx.jpg) ![](https://files.catbox.moe/hnp8bd.jpg)
+![](https://media.discordapp.net/attachments/1000680916982706237/1433983485126901850/ritsu_ONCE_AGAIN_bein_relatable_.jpg?ex=6906acb0&is=69055b30&hm=4a7cb2d51c3c16787fde4b2eb6d87c224c5ee35e180636074be88c050a773d39&=&format=webp&width=345&height=614)
