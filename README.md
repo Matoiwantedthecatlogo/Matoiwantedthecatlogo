@@ -1,4 +1,7 @@
 Chat rework soon but i feel too sentimental
+
+
+
 9![17458102326962339346893184862057](https://github.com/user-attachments/assets/2cd03d9b-7740-4587-b7dd-5ae4989499bb)
 "Ma~kun, I love you. Let's get married."
 ![17458103253236662331059111870150](https://github.com/user-attachments/assets/dafabbd7-3978-42a2-92d2-5d153c79a2d2)![17458147212313782671272218397952](https://github.com/user-attachments/assets/334b2e9d-6cdf-40d7-a1eb-257e04940e31)
