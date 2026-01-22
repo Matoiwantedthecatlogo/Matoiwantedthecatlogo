@@ -4,8 +4,7 @@
 
 ![bleble](https://static.wikia.nocookie.net/hetalia/images/0/0f/Lithuania_Chibi_2011.png/revision/latest?cb=20250423205833)
 
-
-
-![sk](https://cdn.discordapp.com/attachments/999486554500239383/1463816008002175010/Untitled57_20260122164142.png?ex=69733464&is=6971e2e4&hm=1ac6329b29254581d58520b5053269a304e601367fc4df8c730a416ff639ec59&)![yaoi](https://cdn.discordapp.com/attachments/999486554500239383/1463816008421867520/Untitled57_20260122164044.png?ex=69733464&is=6971e2e4&hm=b7b79655b960d93fd76a75408bccad05067afafea23bfb0cd281b675c9c2afcd&)![lk](https://cdn.discordapp.com/attachments/999486554500239383/1463817251697201183/Untitled57_20260122164701.png?ex=6973358d&is=6971e40d&hm=1782f118b0d91a34854cc7a4d683a61444567a0e4fcf13e5e42cd6cf29fd1686&)
-
-
+  ![sk](https://files.catbox.moe/kpy7ah.webp)                                                                                                                                            ![f](https://files.catbox.moe/f01ig0.webp)
+![](https://files.catbox.moe/hqizmm.webp)
+![](https://files.catbox.moe/a8kxm2.webp)
+![](https://files.catbox.moe/hcm9lo.webp)
