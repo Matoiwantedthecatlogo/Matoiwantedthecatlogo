@@ -4,8 +4,6 @@
 
 ![bleble](https://static.wikia.nocookie.net/hetalia/images/0/0f/Lithuania_Chibi_2011.png/revision/latest?cb=20250423205833)
 
-  ![sk](https://files.catbox.moe/kpy7ah.webp)                                                                                                                                            ![f](https://files.catbox.moe/f01ig0.webp)
-![](https://files.catbox.moe/hqizmm.webp)
-![](https://files.catbox.moe/a8kxm2.webp)
-![](https://files.catbox.moe/hcm9lo.webp)
 ![](https://files.catbox.moe/oyo3qd.gif)
+![](https://files.catbox.moe/697561.gif)
+![](https://files.catbox.moe/1rluh4.gif)
