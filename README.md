@@ -2,8 +2,6 @@
 ![LIETPOL](https://files.catbox.moe/n9hxmt.jpg)
 
 
-![bleble](https://static.wikia.nocookie.net/hetalia/images/0/0f/Lithuania_Chibi_2011.png/revision/latest?cb=20250423205833)
-
 ![](https://files.catbox.moe/oyo3qd.gif)
 ![](https://files.catbox.moe/697561.gif)
 ![](https://files.catbox.moe/1rluh4.gif)
@@ -21,4 +19,5 @@
 ![](https://files.catbox.moe/625wxk.gif)
 ![](https://files.catbox.moe/hpzq2b.gif)
 ![](https://files.catbox.moe/mm3y8t.gif)
-![](https://files.catbox.moe/n50549.gif) , and yes we're ALL going to WATCH a full EP of hetalia through my whatever THIS IS
+![](https://files.catbox.moe/n50549.gif) 
+The way that we're all going to WATCH a full ep of hetalia in my README
