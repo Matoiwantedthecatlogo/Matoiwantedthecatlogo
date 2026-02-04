@@ -2,7 +2,7 @@
 ![LIETPOL](https://files.catbox.moe/n9hxmt.jpg)
 
 
-![](https://files.catbox.moe/oyo3qd.gif)
+![](https://files.catbox.moe/9jf9lu.gif)
 ![](https://files.catbox.moe/697561.gif)
 ![](https://files.catbox.moe/1rluh4.gif)
 ![](https://files.catbox.moe/1fatz9.gif)
