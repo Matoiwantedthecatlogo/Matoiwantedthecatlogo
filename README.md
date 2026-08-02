@@ -1,4 +1,4 @@
-`WIP`![mato]
+`WIP`
 
 ![](https://files.catbox.moe/ae6nkx.gif)
 ![](https://files.catbox.moe/8likzl.gif)
