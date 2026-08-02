@@ -1,14 +1,4 @@
-`WIP`![mato](https://cdn.discordapp.com/attachments/999486554500239383/1463804740897865799/b74.gif?ex=697329e6&is=6971d866&hm=427420aced719597cbe12de91d04d3003a2d7755f58002235e8eb58a86f658d8&)
-![LIETPOL](https://files.catbox.moe/n9hxmt.jpg)
-
-
-![](https://files.catbox.moe/9jf9lu.gif)
-![](https://files.catbox.moe/697561.gif)
-![](https://files.catbox.moe/1rluh4.gif)
-![](https://files.catbox.moe/1fatz9.gif)
-
-
-
+`WIP`![mato]
 
 ![](https://files.catbox.moe/ae6nkx.gif)
 ![](https://files.catbox.moe/8likzl.gif)
