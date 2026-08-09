@@ -1,4 +1,5 @@
-`WIPILOVELOVEMYFRIENDS
-MY BEBE SPUK`
+`WIPILOVELOVEMYFRIENDS`
 
-![](https://files.catbox.moe/iz0i0x.mp4) 
+`MY BEBE SPUK`
+
+![](https://files.catbox.moe/poqhj7.gif) 
